@@ -1,1 +1,1 @@
-[![Mega Dataset](https://upload.wikimedia.org/wikipedia/commons/3/3f/Mega_logo_%28website%29.svg)](https://mega.nz/fm/rWIjhRBC)
+[![Mega Dataset](https://upload.wikimedia.org/wikipedia/commons/5/57/01_mega_logo.svg)](https://mega.nz/fm/rWIjhRBC)
